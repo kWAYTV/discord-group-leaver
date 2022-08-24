@@ -6,4 +6,3 @@
 [Discord](https://discord.gg/kws)<br />
 [Website](https://kwayservices.top)<br />
 [Telegram](https://t.me/kwaytv)<br />
-[Genefit](https://genefit.cc)<br />
